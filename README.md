@@ -52,3 +52,5 @@ aaaaa
 はぴはぴ　だーりん321Go FightHappy Happy Darling 3 2 1 Go Fight
 うぴうぴ　はにー321（うーー Fight！！）Upi Upi Honey 3 2 1（U—— Fight!!）
 123cccasdc123
+-----------------------------------
+韩国的虾米诺手阿
